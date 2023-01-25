@@ -1,1 +1,1 @@
-# tommythrash.github.io
+# tommythrash.com
